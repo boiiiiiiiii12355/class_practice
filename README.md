@@ -1,3 +1,1 @@
-your mom is pretty
-
-...
+your mom is pretty OoO
